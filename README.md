@@ -1,4 +1,9 @@
 <div align="center">
-  
 
-![Image](https://github.com/user-attachments/assets/47b207f1-d06b-4f60-97da-2bbfbb68898c)
+𝚖𝚢 𝚜𝚒𝚕𝚕𝚢
+
+@absolutegenius , @amiableyvett , @aitortorute
+
+
+![Image](https://github.com/user-attachments/assets/49433cba-d072-4737-abdc-5350a54b56e4)
+
